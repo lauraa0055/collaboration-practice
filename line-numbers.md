@@ -6,7 +6,7 @@
 #### 6
 #### 7 more words 
 #### 8
-#### 9 github is very good.
+#### 9 github is really awesome.
 #### 10
 #### 11
 #### 12
