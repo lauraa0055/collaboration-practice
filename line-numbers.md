@@ -8,7 +8,7 @@
 #### 8
 #### 9 github is really awesome.
 #### 10
-#### 11 merge conflict 
+#### 11 merge conflict :3
 #### 12
 #### 13
 #### 14
